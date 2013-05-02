@@ -13,10 +13,11 @@ You can still 'mine' the olde fashioned way, using your GPU, etc.
 LOLOLOLOL ARE YOU READY TO MAKE SOME GIFS AND WAIT FOR THE NEXT PUMPnDUMP
 TO CASH IN ON YOUR ARTISTIC EFFORTS CREATING FANTASTIC gifs FOR ALL TO SEE?
 
-----technical stuff----
+-
+
 this is basically 100% litecoin/smallchange. thanks to alexmerced for
 the write-up on making an alt coin on bitcointalk forums.
------------------------
+
 
   _______   __     _______   ______    ______    __    _____  ___   
  /" _   "| |" \   /"     "| /" _  "\  /    " \  |" \  (\"   \|"  \  
