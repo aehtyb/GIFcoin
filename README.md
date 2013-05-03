@@ -9,6 +9,8 @@ HUH? DONT QUesTION IT!!!!!!!
 LOLOLOLOL ARE YOU READY TO MAKE SOME GIFS AND WAIT FOR THE NEXT PUMPnDUMP
 TO CASH IN ON YOUR ARTISTIC EFFORTS CREATING FANTASTIC gifs FOR ALL TO SEE?
 
+GO GO GO!
+
   _______   __     _______   ______    ______    __    _____  ___   
  /" _   "| |" \   /"     "| /" _  "\  /    " \  |" \  (\"   \|"  \  
 (: ( \___) ||  | (: ______)(: ( \___)// ____  \ ||  | |.\\   \    | 
@@ -17,3 +19,4 @@ TO CASH IN ON YOUR ARTISTIC EFFORTS CREATING FANTASTIC gifs FOR ALL TO SEE?
 (:   _(  _|/\  |\(:  (     (:   _) \\        /  /\  |\|    \    \ | 
  \_______)(__\_|_)\__/      \_______)\"_____/  (__\_|_)\___|\____\) 
 
+2013 aehtyb
